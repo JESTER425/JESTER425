@@ -1,0 +1,7 @@
+- HIIII im jester
+- i rlly like forsaken, dream game, and mostly pressure
+- you can find me in alot of different places on pt, places like;
+- at the little itty bitty spot with a ton of clovers at the bottom of the beach i have zero idea what its called
+- i love the little spot on the right of the entire map, again dont know what its called
+- you can use any pronouns on me i do not mind
+- 
