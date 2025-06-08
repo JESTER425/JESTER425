@@ -1,5 +1,5 @@
 - HIIII im jester c:
-- i rlly like forsaken, dream game, and a lot of pressure
+- i rlly like block tales, dream game, and a lot of pressure
 - you can use any pronouns on me i do not mind
 - you can see me w/ my sebastian pony or my p.ai.nter pony :D
 - feel free to interact or come and sit with me on pony town, im mostly afk all day
